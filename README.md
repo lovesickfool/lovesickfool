@@ -1,4 +1,4 @@
-![](https://pbs.twimg.com/media/F-oK_t0XIAAsF4a?format=jpg&name=large)
+![](https://media.discordapp.net/attachments/1020577802757619743/1226869716350537840/Untitled492_20240408202207.png?ex=66265676&is=6613e176&hm=464b1ae477c8ad84f231b633ad132c259f75c35996707ce0a5b580b3f8a668c4&=&format=webp&quality=lossless&width=550&height=315)
 
 <!--
 **lovesickfool/lovesickfool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
